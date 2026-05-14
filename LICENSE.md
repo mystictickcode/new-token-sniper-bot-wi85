@@ -1,4 +1,4 @@
-# 
+# premium new token sniper bot | gas-optimization + degen-coin-scanning offers the most advanced new token sniper bot, with gas-optimization and degen-coin-scanning. Ideal for
 
 
 
